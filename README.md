@@ -1,4 +1,4 @@
-# best-laptops-for-hacking
+# Best laptop for hacking
 Let's take a look a the <a href="https://qualified.one/blog/cybersecurity/best-laptop-for-hacking/
 ">best laptops for hacking</a> as of July 2022.
 
